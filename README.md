@@ -1,2 +1,20 @@
 # maxwarm
 A professional hand warmer factory, steam eye mask factory
+
+When you watch computer for a long time, you might feel eye fatigue. Then, it's time to give your eyes a spa. The warmth of the steam eye mask can promote blood circulation in the eyes and reduce fatigue. And, if you stay in a dry environment and prolonged exposure to air-conditioned rooms for a long time, your eye maybe feel dryness and discomfort. The warmth of the steam eye mask can increase eye moisture and relieve dryness symptoms. And, the aroma released by the steam eye mask can help relax the nerves, relieve tension, and help you rest and sleep better. Warm steam stimulates lymphatic circulation to help reduce eye puffiness and bags.
+
+The outer layer of the steam eye mask is usually made of soft fabric, which can be non-woven, cotton or other materials. These materials can maintain the heat effect and prevent excessive water vapor loss. The steam eye mask contains some chemical substances inside, such as iron powder, activated carbon, etc., which are used to generate heat and keep the eye mask warm. The steam eye mask contains moisture to generate water vapor to provide a moisturizing effect. Steam eye masks often contain volatile essential oils that release their aroma when heated. Different essential oils have different properties, such as lavender for relaxation, peppermint for cooling, lemon for upliftment, etc.
+
+Some people may be allergic to the fabric of steam eye masks or the essential oils in them, so using steam eye masks may cause skin irritation or allergic reactions. Before use, it is recommended to perform a skin sensitivity test on a small area of skin such as the wrist or behind the ear to determine whether it is suitable for your skin type.
+
+Generally speaking, steam eye masks can be used once a day or every other day according to individual needs. If you often feel eye fatigue, dryness or need to relax, you can increase the frequency of use moderately, but do not overuse, so as not to cause discomfort to the eye skin.
+
+The duration of each use of a steam mask is usually around 10 to 25 minutes, depending on the product directions. During use, you can adjust it according to your own feeling to ensure that the eyes are comfortable and do not let the eyes be overheated.
+
+The best time to use it depends on the individual's daily schedule and needs. Generally speaking, you can use steam eye masks at night to help relax your eyes and body and mind, and promote sleep. In addition, if you need to use your eyes for a long time at work or often feel eye fatigue, you can also use them appropriately during the day.
+
+When using a steam eye mask, choose a quiet, comfortable environment for better relaxation. You can lie down or sit down, relax your whole body and enjoy the comfort of the steam eye mask.
+
+Both steam eye masks and traditional hot compresses are methods used for eye care, but there are some differences in how they are used, their effectiveness and their convenience. The steam eye mask contains volatile essential oils, which can affect the mood and nervous system through aromatherapy, helping to relax and relieve tension. The steam eye mask is a disposable product, just tear open the package to use, no additional hot water or utensils are required. It is relatively easy to use. The design of the steam eye mask can ensure that the heat is distributed evenly, the temperature is moderate, and it is not easy to overheat, which is suitable for relaxing the eyes and relieving fatigue.
+
+Traditional hot compresses can use hot water bags, hot towels, etc. You can adjust the temperature of the hot compress according to your personal needs. There are various traditional hot compress methods, which can be selected according to personal preferences, such as hot towels, hot water bottles, hot compress eye masks, etc., which are more flexible. The traditional hot compress method can be used many times, just pay attention to maintaining hygiene, which can save costs and resources.
