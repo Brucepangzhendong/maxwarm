@@ -1,5 +1,5 @@
 # maxwarm
-A professional hand warmer factory, steam eye mask factory
+A professional hand warmer factory, [steam eye mask](https://maxwarm.cn/en-us/warmers/steam-eye-mask.html)
 
 When you watch computer for a long time, you might feel eye fatigue. Then, it's time to give your eyes a spa. The warmth of the steam eye mask can promote blood circulation in the eyes and reduce fatigue. And, if you stay in a dry environment and prolonged exposure to air-conditioned rooms for a long time, your eye maybe feel dryness and discomfort. The warmth of the steam eye mask can increase eye moisture and relieve dryness symptoms. And, the aroma released by the steam eye mask can help relax the nerves, relieve tension, and help you rest and sleep better. Warm steam stimulates lymphatic circulation to help reduce eye puffiness and bags.
 
